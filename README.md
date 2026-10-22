@@ -1,5 +1,6 @@
 <h1 align="center">"𝙬𝙚'𝙧𝙚 𝙖 𝙩𝙚𝙖𝙢, 𝙖𝙡𝙡 𝙤𝙛 𝙪𝙨. 𝙩𝙝𝙞𝙨 𝙝𝙖𝙥𝙥𝙚𝙣𝙚𝙙 𝙤𝙣 𝙢𝙮 𝙬𝙖𝙩𝙘𝙝 𝙖𝙣𝙙 𝙞'𝙡𝙡 𝙣𝙚𝙚𝙙 𝙝𝙚𝙡𝙥 𝙩𝙤 𝙛𝙞𝙭 𝙞𝙩. 𝙣𝙤 𝙤𝙣𝙚 𝙛𝙞𝙜𝙝𝙩𝙨 𝙖𝙡𝙤𝙣𝙚."</h1>
-       
+<img width="480" height="270" alt="giphy" src="https://github.com/user-attachments/assets/5a732c31-f63d-4d2e-8a54-790b7ce00e50" />
+
 
 <!--
 **puppydoll1/puppydoll1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
