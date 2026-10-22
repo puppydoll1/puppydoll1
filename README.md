@@ -4,3 +4,4 @@
 
 <img width="856" height="684" alt="giphy" src="https://github.com/user-attachments/assets/325b71cc-9534-42d8-af34-18fa51124460" />
 <h1 align="centre"><sub>follow my tiktok please :3 https://www.tiktok.com/@puppydoll_1</sub></h1>
+(id add more to this page but im too lazy guys sorry....)
