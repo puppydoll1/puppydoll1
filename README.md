@@ -1,5 +1,5 @@
 "𝙬𝙚'𝙧𝙚 𝙖 𝙩𝙚𝙖𝙢, 𝙖𝙡𝙡 𝙤𝙛 𝙪𝙨. 𝙩𝙝𝙞𝙨 𝙝𝙖𝙥𝙥𝙚𝙣𝙚𝙙 𝙤𝙣 𝙢𝙮 𝙬𝙖𝙩𝙘𝙝 𝙖𝙣𝙙 𝙞'𝙡𝙡 𝙣𝙚𝙚𝙙 𝙝𝙚𝙡𝙥 𝙩𝙤 𝙛𝙞𝙭 𝙞𝙩. 𝙣𝙤 𝙤𝙣𝙚 𝙛𝙞𝙜𝙝𝙩𝙨 𝙖𝙡𝙤𝙣𝙚."
-<img width="498" height="303" alt="image" src="https://github.com/user-attachments/assets/8f971246-d35e-451e-a744-4eecf19ae8fd" />
+          <img width="498" height="303" alt="image" src="https://github.com/user-attachments/assets/8f971246-d35e-451e-a744-4eecf19ae8fd" />
 
 
 
