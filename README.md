@@ -6,6 +6,7 @@
 <h1 align="centre"><sub>follow my tiktok please :3 https://www.tiktok.com/@puppydoll_1</sub></h1>
 (id add more to this page but im too lazy guys sorry....)
 
+
 small reminder / dni list :
 
 -im generally a philanthropist and i love everyone and im extremely friendly so my dni isnt long but if you spread unecasssary hatred to others such as racism or homophobia then please dni because we wont get along and i do not like you ^_^ <3
