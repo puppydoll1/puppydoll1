@@ -7,4 +7,7 @@
 (id add more to this page but im too lazy guys sorry....)
 
 small reminder / dni list :
+
 -im generally a philanthropist and i love everyone and im extremely friendly so my dni isnt long but if you spread general and genuine hatred to others such as racism or homophobia then please dni because we wont get along ^.^ <3
+
+extra: yume status: sharing!
