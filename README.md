@@ -4,7 +4,7 @@
 
 <img width="1199" height="799" alt="csBN0KKxCP50lqONEr5P_" src="https://github.com/user-attachments/assets/47a35108-7966-4fdc-8425-fe4bcf884231" />
 <h1 align="centre"><sub>follow tiktok ^.^ https://www.tiktok.com/@puppydoll_1</sub></h1>
-<h1 align="centre"><sub>art account https://www.tiktok.com/@hamixdd</sub></h1>
+art account https://www.tiktok.com/@hamixdd 
 </sub></h1>
 
 
