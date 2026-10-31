@@ -5,9 +5,9 @@
 
 
 
-<div align="centre">
-<img width="480" height="386" alt="giphy" src="https://github.com/user-attachments/assets/b3a4ae46-df01-4179-b95d-1f14768f3ae4" />
-</div>
+
+<img width="856" height="684" alt="giphy" src="https://github.com/user-attachments/assets/b3a4ae46-df01-4179-b95d-1f14768f3ae4" />
+
 
 
 
