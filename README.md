@@ -5,9 +5,10 @@
 
 
 
-
+<div align="centre">
 <img width="480" height="386" alt="giphy" src="https://github.com/user-attachments/assets/b3a4ae46-df01-4179-b95d-1f14768f3ae4" />
-<img width="480" height="390" alt="giphy" src="https://github.com/user-attachments/assets/e5eaa04c-99a1-4bd0-bf97-2e69c672627f" />
+</div>
+
 
 
 <h1 align="centre"><sub>follow tiktok ^.^ https://www.tiktok.com/@puppydoll_1</sub></h1>
